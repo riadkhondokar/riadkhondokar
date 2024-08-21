@@ -1,2 +1,2 @@
-hi assalamuaalikum everybodky N M<br>
+hi assalamuaalikum everybodky <br>
 ektu bujsi
